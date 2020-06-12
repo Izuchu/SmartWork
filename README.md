@@ -1,5 +1,4 @@
 # SmartWork
 Hi Everyone,
 My name is Izuchukwu Iwuchukwu.
-I am a civil engineer ready to acquire more skill especially in web design..
-I hope to learn and achieve my goals.
+My Slack name is @Izu. I joined in the marketing team. I shared the group's videos on My Twitter and Instagram page and shared to some of my family and friends on WhatsApp. Thanks
